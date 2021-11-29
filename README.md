@@ -6,4 +6,4 @@
 
 - ❗❗ neohtoniah/neohtoniah is a ✨ special ✨ repository because of its `README.md` (this file). 😱😱
 
-- 🙋‍♂️ Oh, one more thing: 😱😱.
+- 🙋‍♂️ Oh, one more thing before you go: 😱😱
